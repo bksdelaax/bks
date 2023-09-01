@@ -4,5 +4,6 @@
 *LUA, HL*
 *PORTUGUÊS - BRASIL*
 *nathanb.schaffner@gmail.com*
-![Uploading rone-ronepr.gif…]()
+![giphy](https://github.com/bksdelaax/bks/assets/143848856/34887862-3fdb-4c3d-9e6b-b0197c1b3c8e)
+
 
